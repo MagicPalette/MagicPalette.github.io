@@ -1,0 +1,1 @@
+# MagicPalette.github.io
